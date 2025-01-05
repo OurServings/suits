@@ -2,7 +2,7 @@
 
 Supplier: **[Hugo Boss](https://www.hhv.de)**
 
-Item: [Slim-fit pak van stretchmateriaal met microdessin](https://www.hugoboss.com/nl/slim-fit-pak-van-stretchmateriaal-met-microdessin/hbeu50534914_030.html?gad_source=1&gclid=EAIaIQobChMIg9WWj-XeigMVhoqDBx2KvAKtEAQYASABEgLTgfD_BwE)
+Item: [Modern-fit pak met microdessin van hoogwaardig stretchmateriaal](https://www.hugoboss.com/nl/modern-fit-pak-met-microdessin-van-hoogwaardig-stretchmateriaal/hbeu50533278_086.html)
 
 Images: 
 | -- |
