@@ -11,7 +11,7 @@ Images:
 
 Item No: **???**
 
-Price: **EURO ??.??**
+Price: **EURO 449,00**
 
 Size: **EU 42**
 
